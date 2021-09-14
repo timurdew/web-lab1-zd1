@@ -2,3 +2,4 @@
 
 
 if the love is the world's truth why it's so hurt to love
+keep it up just smile
